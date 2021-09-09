@@ -4,7 +4,6 @@
 
 Let me introduce myself:
 
--  I’m jobless
 -  I’m currently learning how to be better
 -  I’m looking to collaborate with anyone who invites me
 -  Ask me about How to be lazy
